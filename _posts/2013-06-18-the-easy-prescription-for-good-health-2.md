@@ -1,0 +1,18 @@
+---
+id: 648
+title: The Easy Prescription for Good Health
+date: 2013-06-18T13:43:00+00:00
+author: admin
+layout: post
+guid: http://www.wellnessmanager.info/?p=648
+permalink: /2013/06/18/the-easy-prescription-for-good-health-2/
+categories:
+  - Health
+---
+A balanced diet with complete vitamins along with proper exercise is what makes a man healthy. It has been said since ages that a disciplined lifestyle that includes proper exercises, a healthy diet with vitamins and other nutritional supplements is the best way for a healthy living. All you need is to make little effort towards making your life a disciplined one.
+
+You all know that today life is much busier than it was years ago. Life has become hectic. There is more work to be done in less time. You are unable to give time to yourself and thus are not able to take proper care of your health. In today’s fast life we go for the fast food that is easy to make and takes less time to cook. We eat food that is actually not giving us proper vitamin and other required nutritional supplements. The result is you feel sluggish and feel lack of energy that you actually do not realize. Moreover such type of food ruins your body. Your body loses the flexibility, your skin does not look healthy and there are a number of other such problems which you do not realize initially.
+
+Health care is an important aspect in a person’s life. Health is wealth and thus it is essential that a person takes all the required vitamins and minerals and proper diet to keep healthy. Healthy food contains different fruits and vegetables that are full of vitamins and minerals and contain fiber which is important for digestive system. Then there should be proteins and for that in your diet you should include, fish meat, chicken and other such sources full of proteins. You should not forget to take dairy products. But always keep in mind not to take too much of fat as it could put you in trouble. After all you do not want to have high cholesterol and have heart problems. Another point is to take proper diet. Do not eat less and take proper meals. Be sure never to skip breakfast as it plays the role of making your day active. Remember! Food changes your mood.
+
+Exercises play an equally vital role in our life. None of us like to have an unhealthy body. We all want a good looking and physically fit body. If you eat and sit the whole day and do not exercise imagine what shape your body is going to take. Today the life is such that people have to sit for long hour in the offices. They feel too tired and lazy to get up in the morning to exercise. But should it be this way! You are actually doing harm to your body. Exercises are a must to keep the body physically fit. You should at least do basic exercises regularly. Exercises help in proper blood circulation; they keep you active and fresh. If you exercise daily then you do not feel lazy or sluggish. Stretching exercises make you feel relaxed. You can stretch out your body and feel relaxed. If you have to sit in front of the computer then you should not forget to do some shoulders exercises and back exercises. Yoga exercises are helping people a lot. In India millions of people are going for yoga exercise as it has given them relief from a number of health problems. They say that yoga does what at times science fails to do. Yoga exercise helps you release the stress and tension you are undergoing. It has said to have cured diseases that even doctors could not. In western countries too people are going for yoga exercises. But yoga exercises are to be done under guidance of a person who is well informed about these yoga exercises.
